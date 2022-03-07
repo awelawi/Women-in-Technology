@@ -177,6 +177,14 @@ The Carolyn Leighton Scholarship is offered to students in the APAC region to at
 * A certificate of participation in WITI’s 27th Annual Global Summit
 * 1 year WITI membership
 
+#### 9. The BHW scholarship for women in STEM
+#### 10. the Virginia Heinlein Memorial Scholarship
+#### 11. the Science Ambassador Scholarship funded by Cards Against Humanity
+#### 12. the ABC Humane Wildlife Women in STEM Academic Scholarship
+#### 13. the Girls Who STEM scholarship 
+#### 12. the Adobe Research Women-in-Technology Scholarship
+#### 14. the Hyundai Women in Stem Scholarship and the Amazon Future Engineer Scholarship Program.
+
 
 
 
